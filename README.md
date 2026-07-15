@@ -81,7 +81,7 @@ Government College University Faisalabad (GCUF)
 
 ### Connect with me
 
-- LinkedIn: *(Add your LinkedIn profile URL here)*
+- LinkedIn: https://www.linkedin.com/in/muhammad-duryab-bakht-69b566388/
 
 ---
 
